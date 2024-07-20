@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @AjiGe13z
+- 👋 Hi, I’m @AjiGe13z A.K.A "thabLkH@TcAt"
 - 👀 I’m interested in ...computer'Z
-- 🌱 I’m currently learning ...photography 
+- 🌱 I’m currently learning ...photography/cyber secerty
 - 💞️ I’m looking to collaborate on ...fashion label 
 - 📫 How to reach me ...???
 - 😄 Pronouns: ...A-J¡ggY
